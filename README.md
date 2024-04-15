@@ -1,4 +1,5 @@
 Sou apenas uma pessoa que gosta muito de eletrônica e computadores
+![flower-game](https://s01.riotpixels.net/data/9e/42/9e42f96e-8143-495e-b5a8-1467acdad2bd.jpg/wallpaper.flower.1280x720.2013-11-13.59.jpg)
 <!--
 **PedrelliMath/PedrelliMath** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
